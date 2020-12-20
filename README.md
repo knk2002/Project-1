@@ -12,5 +12,3 @@ I have joined ENHANCE42 since 10/12/20. It's not that long since I joined. I hav
 **For suggetions and compaints**
 
 MY [EMAIL ID](kancherla2002@gmail.com)
-
-END
